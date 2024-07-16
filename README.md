@@ -1,0 +1,1 @@
+# MindFulAI-Assignments
